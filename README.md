@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **arunkushwaha.2057@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1t7UJjGJ5wCO36dkrVLyeUMHdO6i3w2YN/view?usp=sharing](https://drive.google.com/file/d/1t7UJjGJ5wCO36dkrVLyeUMHdO6i3w2YN/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
